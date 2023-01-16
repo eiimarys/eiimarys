@@ -1,16 +1,28 @@
-### Hi there 👋
+### Ola, eu sou a mary!
 
-<!--
-**eiimarys/eiimarys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<h5> eu sou iniciante nessa area de progamação, porém estou gostando bastante.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+         
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
